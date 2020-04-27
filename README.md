@@ -5,3 +5,4 @@ We are anonymous.
 We do not forgive.
 We do not forget.
 Expect us.
+Hi~ My name is Soram!
